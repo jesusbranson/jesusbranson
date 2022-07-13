@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 👋 Hi, I’m @jesusbranson cengız coskun :)
+- 👋 Hi, I’m cengız :)
 
 - 👀 Being a back end developer, ​​and developing projects would be great :)
 
@@ -7,4 +7,4 @@
 
 - 📫  E-mail:cengizcoskun2001@gmail.com
 
-- "always go forward
+- "only option is to work"
