@@ -3,4 +3,4 @@
 
 - 📫  E-mail:cengizcoskun2001@gmail.com
 
-- "only option is to work"
+
